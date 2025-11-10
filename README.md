@@ -1,2 +1,0 @@
-# Sut-Pesinde
-Süt Peşinde
